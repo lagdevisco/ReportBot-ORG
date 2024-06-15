@@ -2,16 +2,16 @@
 (𝙒𝙊𝙍𝙆𝙎 𝙊𝙉 𝘼𝙇𝙇 𝙋𝙇𝘼𝙏𝙁𝙊𝙍𝙈𝙎) 
 
 <p align="center">
-[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/OGfJn
-[Website] https://reportbot.org
+[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/OGfJn <br>
+[Website] https://reportbot.org <br>
 </p>
 
 <p align="center"><img src="https://github.com/lagdevisco/ReportBot-ORG/assets/172890881/2d584123-9046-496c-9090-d228afc2e740" /> <br>
 ↓ ɢᴇᴛ ɪɴꜱᴛᴀɴᴛ ʀᴇᴠᴇɴɢᴇ ᴏɴ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ʏᴏᴜ ʜᴀᴛᴇ.​ ↓
 
 <p align="center">
-[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/OGfJn
-[Website] https://reportbot.org
+[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/OGfJn <br>
+[Website] https://reportbot.org <br>
 </p>
 
 <p align="center">
